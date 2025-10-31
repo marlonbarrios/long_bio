@@ -1,5 +1,5 @@
 
-## Long Bio:
+## Long Bio
 
 ![Marlon 06 06 25 OOTFest25 higher res_265](https://github.com/user-attachments/assets/2c31b309-e74a-4012-a87c-20ae68d7f09b)
 
